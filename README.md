@@ -1,0 +1,1 @@
+# lottery-samsung-repo
